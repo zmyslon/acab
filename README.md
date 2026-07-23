@@ -28,6 +28,3 @@ u can download files
 like in chrome
 but its not chrome
 ### THe AcTual enD
-
-
-i liek superfuckingmario )=
